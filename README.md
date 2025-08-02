@@ -1,1 +1,1 @@
-will updated soon with custome readme 
+it will used a s aproper payment 
